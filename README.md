@@ -37,4 +37,5 @@
 
 ### 📫 Connect with Me
 
-[LinkedIn](https://www.linkedin.com/in/sayma-sultana-b10a54230/) • saymasultanaisra@gmail.com
+[LinkedIn](https://www.linkedin.com/in/sayma-sultana-b10a54230/) 
+Email: saymasultanaisra@gmail.com
